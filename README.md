@@ -3,13 +3,12 @@ My name is Nguyen Quang Trung, I have had two vaccinations, don't wear left sand
 
 
 ### Some things about me:
-
-🌱 I’m currently learning Ly Thuong Kiet High School, Yen Bai, Viet Nam
-👯 I’m looking to collaborate on HieuNe1703
-🤔 I’m looking for help with hacking Facebook accounts
-💬 Ask me about: Age, Height, Education
-📫 How to reach me: Scroll down to find
-😄 Pronouns: nqtdzs1tg
+- 🌱 I’m currently learning Ly Thuong Kiet High School, Yen Bai, Viet Nam
+- 👯 I’m looking to collaborate on HieuNe1703
+- 🤔 I’m looking for help with hacking Facebook accounts
+- 💬 Ask me about: Age, Height, Education
+- 📫 How to reach me: Scroll down to find
+- 😄 Pronouns: nqtdzs1tg
 
 
 ### My information
